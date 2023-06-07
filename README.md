@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @hypxl-swet
+- 👋 Hi, I’m swety at hypxl
 - 👀 I’m interested in stuffs
 - 🌱 I’m currently learning coding stuffs
 - 💞️ I’m looking to collaborate on nothing
